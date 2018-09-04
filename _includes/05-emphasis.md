@@ -1,0 +1,5 @@
+- _I like to sing_ 
+- _dance_
+- _pretend_
+- **AND**
+- **I like to have fun**
