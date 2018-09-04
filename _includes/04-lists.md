@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+Long walks on the beach
+Late night car rides
+Minecraft boi
