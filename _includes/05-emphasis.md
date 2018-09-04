@@ -1,5 +1,5 @@
-I like to sing 
-dance
-pretend
-AND
-I like to have fun
+- I like to sing 
+- dance
+- pretend
+- AND
+- I like to have fun
